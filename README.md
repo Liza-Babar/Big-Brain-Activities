@@ -1,1 +1,1 @@
-# big-brain-activities
+# Big-Brain-Activities
